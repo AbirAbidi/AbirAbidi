@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a Software engineering student<br>💬 Ask me about stuff in IoT , i might help ;)
+🔭 I’m currently a tired Software engineering student<br>💬 Here until i can afford to buy a farm :)
 
 
 ## 🌐 Socials:
